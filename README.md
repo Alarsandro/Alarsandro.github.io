@@ -1,2 +1,0 @@
-# Recycling-center
-Diseño
